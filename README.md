@@ -1,1 +1,1 @@
-# paginaintele1C
+# paginainterne1C
